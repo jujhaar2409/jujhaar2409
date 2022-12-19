@@ -1,4 +1,4 @@
-👋 Hi, I’m @jujhaar2409
+👋 Hi, I’m Jujhaar!
 
 I'm a third year Electrical Engineering undergraduate at the Indian Institute of Technology Bombay. 
 
